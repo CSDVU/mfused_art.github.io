@@ -1,3 +1,3 @@
-## Welcome to Like Fonelle in Paris!
+## Welcome to MFused Art!
 
 
